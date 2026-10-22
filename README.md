@@ -1,10 +1,8 @@
  <p align="center"> 
    ꒷꒦꒷꒦꒷°❀⋆.ೃ࿔*:･°❀⋆.ೃ࿔*:･꒷꒦꒷꒦꒷  
-   </p>
-   
-<p align="center">
-<img width="277" height="206" alt="Crk_asphodel_joy" src="https://github.com/user-attachments/assets/33bc61a8-7e71-4d2a-89e2-95e21dd65a4a" />  
-  </p>
+   </p> 
+<p align="center"> 
+<img width="362" height="88" alt="mcsm-minecraft-story-mode0" src="https://github.com/user-attachments/assets/87ce6470-e42c-4322-9208-22780bbe4aa5" />    
 
 <p align="center"> 
 ꒷꒦꒷꒦꒷ °❀⋆.ೃ࿔*:･°❀⋆.ೃ࿔*:･꒷꒦꒷꒦꒷ 
@@ -14,8 +12,33 @@
 Welcome ^-^ I'm usually drawing, playing a game, or talking to a friend while I'm on Pony Town, but you're free to whisper me if you don't mind slower replies at times. I love to receive little doodles on my StrawPage ♡
 </p> 
 <p align="center"> 
-⋆❤︎ <img width="99" height="55" alt="70AB9AE5-FE08-4F25-82AF-A4D74A3D5795" src="https://github.com/user-attachments/assets/1f714078-2ae7-4945-85d3-2bef6ae32230" /> ❤︎⋆
+⋆❤︎ <img width="298" height="173" alt="pokemon-legendary-pokemon" src="https://github.com/user-attachments/assets/f76e8547-35e6-4372-88ab-a10831f2d625" />
+ ❤︎⋆
 </p> 
 <p align="center"> 
 Interests: Animation, Character Design + Concept Art, Lost and Obscure Media, Cut/Unused Content, Video Games, Console Modding, Video Editing  
 </p> 
+<p align="center">  
+<img width="99" height="56" alt="ddguv6h-09d20b4b-b11a-4c3a-9a25-f35cc8e68e70" src="https://github.com/user-attachments/assets/b8fb5deb-89c4-496c-bd2d-178729363a04" />
+
+<img width="99" height="55" alt="dbmvt02-dfec4dbe-0f87-4e9b-bbea-ba4b483bb5f3" src="https://github.com/user-attachments/assets/a5c69dd9-e26b-4203-bb6c-b2e28677b88f" />
+  
+<img width="99" height="56" alt="ddkecoy-cc97931a-66e1-4e13-9e0b-4a70a911797f" src="https://github.com/user-attachments/assets/2f58a06d-f47e-45d2-9e2f-50457b85cd89" />
+
+<img width="99" height="56" alt="dbwzcbw-b90d4693-0f96-4461-85d9-c45de53ceed7" src="https://github.com/user-attachments/assets/a1080248-c5b1-4b0c-9dab-5b987180bfc0" />
+</p> 
+<p align="center">  
+<img width="99" height="56" alt="dbh0b5q-1608d01b-6c30-4f86-bed7-2d9d7faa67a6" src="https://github.com/user-attachments/assets/d3b1a844-7736-4f4e-af6b-f873cedaf88e" />
+
+<img width="99" height="56" alt="darzz45-297edacc-ac34-4fa5-9718-7502d0be72ac" src="https://github.com/user-attachments/assets/c632a8cd-b53b-42cc-a31e-01a14e95ed2f" />
+
+<img width="99" height="56" alt="ddquv6v-177272ce-224f-4d30-8679-d374f4f103e8" src="https://github.com/user-attachments/assets/7fff6332-2857-45e4-83f0-f3ef6c765fb0" /> 
+
+<img width="99" height="56" alt="dm1r3qo-c9edb544-1175-4874-82b2-731cbff19b98" src="https://github.com/user-attachments/assets/190f16bc-8972-4ded-81d0-edd718745fd7" />
+</p> 
+<p align="center">  
+<img width="99" height="57" alt="stamp" src="https://github.com/user-attachments/assets/5f91cbbc-ee9e-4210-b956-b201f66d13e2" />
+
+<img width="99" height="57" alt="stamp(1)" src="https://github.com/user-attachments/assets/21515321-361d-4a8e-bcc1-44d127300cc2" /> 
+
+<img width="99" height="56" alt="stamp(2)" src="https://github.com/user-attachments/assets/8df5c64a-b9b2-498c-aaad-18f43804c20f" />
