@@ -39,6 +39,7 @@ Interests: Animation, Character Design + Concept Art, Lost and Obscure Media, Cu
 <p align="center">  
 <img width="99" height="57" alt="stamp" src="https://github.com/user-attachments/assets/5f91cbbc-ee9e-4210-b956-b201f66d13e2" />
 
-<img width="99" height="57" alt="stamp(1)" src="https://github.com/user-attachments/assets/21515321-361d-4a8e-bcc1-44d127300cc2" /> 
+<img width="99" height="57" alt="stamp(5)" src="https://github.com/user-attachments/assets/e62a0035-5c9b-4667-9515-1debe709147a" />
+
 
 <img width="99" height="56" alt="stamp(2)" src="https://github.com/user-attachments/assets/8df5c64a-b9b2-498c-aaad-18f43804c20f" />
