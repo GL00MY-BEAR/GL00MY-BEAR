@@ -18,7 +18,7 @@ Welcome ^-^ I'm usually drawing, playing a game, or talking to a friend while I'
  ❤︎
 </p> 
 <p align="center"> 
-Interests: Animation, Character Design + Concept Art, Lost and Obscure Media, Cut/Unused Content, Video Games, Console Modding, Video Editing  
+Interests: Animation, Character Design + Concept Art, Lost and Obscure Media, Cut/Unused Content, Video Games, Video Editing  
 </p> 
 <p align="center">  
 <img width="99" height="56" alt="ddguv6h-09d20b4b-b11a-4c3a-9a25-f35cc8e68e70" src="https://github.com/user-attachments/assets/b8fb5deb-89c4-496c-bd2d-178729363a04" />
